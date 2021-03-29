@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on testing, improving and expanding QutiePy!
 - 📫 How to reach me: email me at findlaytel@gmail.com
 
-*Currently looking for employment or research oppurtunities!!!*
+*Currently looking for employment or research opportunities!!!*
 
 [LinkedIn](https://www.linkedin.com/in/tom-findlay-a5a36413a/)
 <!---
