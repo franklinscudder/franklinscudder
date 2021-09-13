@@ -7,6 +7,9 @@
 *Currently looking for employment or research opportunities!!!*
 
 [LinkedIn](https://www.linkedin.com/in/tom-findlay-a5a36413a/)
+
+Yours Faithfully,
+Mr. Thomas E. L. Findlay MEng ACGI ARAes OA
 <!---
 franklinscudder/franklinscudder is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
