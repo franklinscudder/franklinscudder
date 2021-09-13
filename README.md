@@ -10,7 +10,7 @@
 
 Yours Faithfully,
 
-Mr. Thomas E. L. Findlay MEng ACGI ARAes OA ✨✨✨
+Mr. Thomas E. L. Findlay MEng ACGI ARAeS OA ✨✨✨
 
 
 <!---
